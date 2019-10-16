@@ -1,1 +1,0 @@
-# zairaparondaPortfolio.github.io
